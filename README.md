@@ -1,2 +1,2 @@
 # test-repo
-this account is made by BULBUL AHMED. Employee of DIGI-GATE360 LTD
+this account is created by BULBUL AHMED. Employee of DIGI-GATE360 LTD
